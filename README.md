@@ -1,0 +1,1 @@
+# jualkolamterpal.github.io
